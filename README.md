@@ -1,0 +1,5 @@
+- Yoooo, I’m @vargii
+- I’m interested in scripting.
+-  I’m currently learning, Python!!!🐍
+-  I’m looking to collaborate on nothing atm
+- 📫 You can reach me through my discord, which is (" vargi#1111 ")
